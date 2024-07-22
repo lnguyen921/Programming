@@ -1,0 +1,1 @@
+https://github.com/cpq/bare-metal-programming-guide?fbclid=IwZXh0bgNhZW0CMTAAAR1FuyhT51fzQQcsn94V0Wh5r-ghjBELgQkh-Eqr9f2UWtguh9vaUgfweBw_aem_ZaFgu5_hg7E6f_2f-bP07g
